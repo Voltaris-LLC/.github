@@ -1,6 +1,6 @@
 # Voltaris LLC
 
-Welcome to Voltaris LLC! We are a private organization focused on [describe your organization's mission or purpose].
+Welcome to Voltaris LLC! We are a private organization focused on Community outreach our goal is to set a presence in the IRL (In Real Life) and online stand point to be able to give people a place to go where they feel safe after school, online, etc. We will eventually be holding events handing school supplies and clothing vouchers to families in need. One day we will operate like the boys and girls club having safe places for kids to go after school across The U.S. and soon the world.
 
 ## Contact
 
